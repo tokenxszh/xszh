@@ -1,1 +1,1 @@
-# xszh
+# xszhXSZH is a decentralized Extra Strong Zero Hora game platform token supported by the Huobi ecological chain. It is also truly applied to online games and solves the problems of high fees and low trust in games. In fact, games are the most important vertical application field of smart contract technology. XSZH introduces blockchain technology into the game field.  
